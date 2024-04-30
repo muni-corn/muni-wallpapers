@@ -6,5 +6,5 @@ check out these amazing artists and more of their incredible work:
 
 - [Brittney Ackerman](https://twitter.com/LBRCloud)
 - [Gnashie](https://twitter.com/seagnash)
-- horselamp
+- [horselamp](https://derpibooru.org/tags/artist-colon-horselamp)
 - [WindyKirin](https://twitter.com/WindyKirin)
