@@ -11,3 +11,7 @@ check out these amazing artists and more of their incredible work:
 - [SmoothWild](https://twitter.com/smooth_wild_art)
 - [WindyKirin](https://bsky.app/profile/windykirin.bsky.social)
 - [horselamp](https://derpibooru.org/tags/artist-colon-horselamp)
+
+oh, and me
+
+- [municorn](https://bsky.app/profile/municorn.horse)
